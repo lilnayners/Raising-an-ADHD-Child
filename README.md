@@ -15,7 +15,7 @@ This is really rough right now and I'm not sure what shape this will take but I'
 * https://www.verywell.com/ways-to-teach-children-impulse-control-1095035
 * https://www.healthcentral.com/article/adhd-symptoms-series-impulsivity
 
-##ADHD and School
+## ADHD and School
 * https://www.addrc.org/disorder-105-tips-for-teachers/
 
 ## Helpful Websites & Online Communities
