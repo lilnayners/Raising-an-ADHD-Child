@@ -21,3 +21,4 @@ This is really rough right now and I'm not sure what shape this will take but I'
 ## Helpful Websites & Online Communities
 * https://www.understood.org
 * http://www.chadd.org/
+* How to ADHD YouTube Channel: https://www.youtube.com/channel/UC-nPM1_kSZf91ZGkcgy_95Q
